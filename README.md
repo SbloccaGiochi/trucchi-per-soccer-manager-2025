@@ -1,0 +1,1 @@
+# trucchi-per-soccer-manager-2025
